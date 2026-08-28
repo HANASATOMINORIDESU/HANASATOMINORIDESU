@@ -1,11 +1,15 @@
 </p><p align="center">
-
-  ![image alt](https://github.com/HANASATOMINORIDESU/HANASATOMINORIDESU/blob/e1ef7018e21afc46ca87d5985ea9394780fa2660/Untitled9_20260529093059.png)
+ <img
+src="https://files.catbox.moe/cqgdbm.png"
+width="500"/>  
+  
+![image alt](https://files.catbox.moe/rama3d.png)
 </p><p align="center">
-  <img src="https://gifs4crds.carrd.co/assets/images/image10.gif?vca07fc73a" width="595"/>
+ <img src="https://files.catbox.moe/ufiemr.png"
+width="200"/>   
 </p>
 <p align="center">
-  <a href=""><strong>More and more! Even moooore! In order to deliver hope to everyone!
+  <a href=""><strong>"𝓓𝓸 𝔂𝓸𝓾 𝓽𝓱𝓲𝓷𝓴 𝓽𝓱𝓪𝓽 𝔀𝓮 𝓬𝓸𝓾𝓵𝓭 𝓶𝓪𝓴𝓮 𝓲𝓽?"
 </p></strong></a>
 </p>
 </p><p align="center">
@@ -14,23 +18,27 @@
 
 </p>
 <p align="center">
-  ⁔⁔     ↷  @ aubrey   /   sono  /  charlotte     .     ambivert  ,,  minoriKIN 
+   —   ᴘᴊꜱᴋ ᴘʟᴀʏᴇʀ     ♪. @@@ ᴀᴜʙʀᴇʏ / ꜱᴏɴᴏ / ᴄʜᴀʀʟᴏᴛᴛᴇ    @ ;;    ᴍɪɴᴏʀɪᴋɪɴ ,   ᴀᴍʙɪᴠᴇʀᴛ ++.  ##   ᴍɪɴᴏʀ   →     ɪ ᴀʙꜱᴏʟᴜᴛᴇʟʏ ᴀᴅᴏʀᴇ ꜱᴀᴋɪ
 </p>
-
+<img
+src="https://files.catbox.moe/cqgdbm.png"
+width="500"/>  
 </p>
 <p align="center">
-      ‿‿    —    ⌈dry but clingy⌋    ;;      12ve   ☆    she/her/they/them  ←
+      ##    —    ⌈ᴇɴᴇʀɢᴇᴛɪᴄ⌋    ;;      Ｌｖｌ １２   ☆    ꜱʜᴇ/ʜᴇʀ/ᴛʜᴇʏ/ᴛʜᴇᴍ  ←
 </p>
 <p align="center">
-  <a href=""><strong>  ←  check other links for more info (at the bottom of my profile bio)
+  <a href=""><strong> ℂ𝕙𝕖𝕔𝕜 𝕠𝕦𝕥 𝕞𝕪 𝕤𝕥𝕣𝕒𝕨𝕡𝕒𝕘𝕖 𝕗𝕠𝕣 𝕞𝕠𝕣𝕖 𝕚𝕟𝕗𝕠! (𝕔𝕦𝕣𝕣𝕖𝕟𝕥𝕝𝕪 𝕒 𝕨𝕚𝕡)
 </p></strong></a>
 </p>
 </p><p align="center">
   <img src="https://yokai.crd.co/assets/images/image51.gif?v=b4df531c" width="595"/>
 </p>
 <p align="center">
-  <img src="https://gifs4crds.carrd.co/assets/images/gallery08/3af19898.gif?vca07fc73a" width="120"><br>
-  <strong>Hakushon...!</strong>
+  <img
+src="https://files.catbox.moe/cqgdbm.png"
+width="500"/>  
+  <strong>🅃🄷🄰🄽🄺🅂 🄵🄾🅁 🅁🄴🄰🄳🄸🄽🄶 🄵🄴🄻🄻🄾🅆 🄷🅄🄼🄰🄽👀</strong>
 </p>
 
 
