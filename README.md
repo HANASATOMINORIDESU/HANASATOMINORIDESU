@@ -20,7 +20,7 @@ width="200"/>
 </p>
 <p align="center">
    —   ᴘᴊꜱᴋ ᴘʟᴀʏᴇʀ     ♪. @@@ ᴀᴜʙʀᴇʏ / ꜱᴏɴᴏ / ᴄʜᴀʀʟᴏᴛᴛᴇ    @ ;;    ᴍɪɴᴏʀɪᴋɪɴ ,   ᴀᴍʙɪᴠᴇʀᴛ ++.  ##   ᴍɪɴᴏʀ   →     ɪ ᴀʙꜱᴏʟᴜᴛᴇʟʏ ᴀᴅᴏʀᴇ ꜱᴀᴋɪ
-</p>
+</p><p align="center">  
 <img
 src="https://files.catbox.moe/cqgdbm.png"
 width="500"/>  
@@ -31,14 +31,11 @@ width="500"/>
 <p align="center">
   <a href=""><strong> ℂ𝕙𝕖𝕔𝕜 𝕠𝕦𝕥 𝕞𝕪 𝕤𝕥𝕣𝕒𝕨𝕡𝕒𝕘𝕖 𝕗𝕠𝕣 𝕞𝕠𝕣𝕖 𝕚𝕟𝕗𝕠! (𝕔𝕦𝕣𝕣𝕖𝕟𝕥𝕝𝕪 𝕒 𝕨𝕚𝕡)
 </p></strong></a>
-</p>
-</p><p align="center">
+</p><p align="center">  
   <img src="https://yokai.crd.co/assets/images/image51.gif?v=b4df531c" width="595"/>
-</p>
-<p align="center">
-  <img
-src="https://files.catbox.moe/cqgdbm.png"
-width="500"/>  
+</p><p align="center">
+  <img src="https://files.catbox.moe/cqgdbm.png" width="500"/>
+</p><p align="center">
   <strong>🅃🄷🄰🄽🄺🅂 🄵🄾🅁 🅁🄴🄰🄳🄸🄽🄶 🄵🄴🄻🄻🄾🅆 🄷🅄🄼🄰🄽👀</strong>
 </p>
 
