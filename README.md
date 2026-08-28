@@ -2,8 +2,9 @@
  <img
 src="https://files.catbox.moe/cqgdbm.png"
 width="500"/>  
-  
-![image alt](https://files.catbox.moe/rama3d.png)
+</p><p align="center">  
+<img src="https://files.catbox.moe/rama3d.png"
+width="500"/>
 </p><p align="center">
  <img src="https://files.catbox.moe/ufiemr.png"
 width="200"/>   
