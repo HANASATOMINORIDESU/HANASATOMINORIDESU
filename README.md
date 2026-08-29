@@ -34,7 +34,9 @@ width="500"/>
 </p><p align="center">  
   <img src="https://yokai.crd.co/assets/images/image51.gif?v=b4df531c" width="595"/>
 </p><p align="center">
-  <img src="https://files.catbox.moe/cqgdbm.png" width="500"/>
+ <img src="https://files.catbox.moe/sy4vlf.png" width="200"/>
+</p><p align="center">
+<img src="https://files.catbox.moe/cqgdbm.png" width="500"/>
 </p><p align="center">
   <strong>🅃🄷🄰🄽🄺🅂 🄵🄾🅁 🅁🄴🄰🄳🄸🄽🄶 🄵🄴🄻🄻🄾🅆 🄷🅄🄼🄰🄽👀</strong>
 </p>
